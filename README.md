@@ -1,0 +1,2 @@
+# phishingmethod
+phishing  phishing phishingphishing
